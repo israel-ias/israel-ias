@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Israel Silva, I'm a Jesus follower, Bible reader, God’s son, happy husband and father, biker, runner, entrepreneur, hustler, cooker, and software engineer
+- 👀 I’m interested in airplanes and cars
+- 🌱 I’m currently learning docker and node.js
+- 💞️ I’m looking to collaborate on projects that call my attention
+- 📫 How to reach me israel@iasdigitalgroup.com +1 786-403-8017
